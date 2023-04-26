@@ -6,5 +6,5 @@
 
 💞️ I’m looking to collaborate on any project that will improve my skills.
 
-📫 How to reach me: olittobee4u@gmail.com it
+📫 How to reach me via:olittobee4u@gmail.com 
 
